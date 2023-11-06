@@ -7,4 +7,4 @@
 **Simple download 720p mp4 video from PornHub and RedTube**  
 
 **Copyright (c) 2010-2023, Swastick Das**  
-**Swastick Das web site: https://alexell.ru**  
+**[Swastick Das Website](https://alexell.ru/soft/other/phub-video-downloader-pornhub-redtube.html#)

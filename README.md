@@ -6,5 +6,5 @@
 ![PornHub Video Downloader](https://alexell.ru/wp-content/uploads/2018/07/phub_downloader.jpg)  
 **Simple download 720p mp4 video from PornHub and RedTube**  
 
-**Copyright (c) 2010-2018, Alexell**  
-**Alexell web site: https://alexell.ru**  
+**Copyright (c) 2010-2023, Swastick Das**  
+**Swastick Das web site: https://alexell.ru**  
